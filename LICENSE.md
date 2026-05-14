@@ -1,4 +1,4 @@
-# 
+# Get the ultimate ClickUp for Windows extension with smart ClickUp for Windows Extension | gantt-charts + notifications. Featuring gantt-charts and notifications, it's the best
 
 
 
